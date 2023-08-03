@@ -25,4 +25,4 @@
 </div> </br>
 
 
-Estudando programação muito empolgada para aprender, focada nos meus objetivos e muito feliz a cada conquista, estou aprendendo programação na raça, sou Brasileira e nunca desito!!!
+Estudando programação muito empolgada para aprender, focada nos meus objetivos e muito feliz a cada conquista, estou aprendendo programação na raça, sou Brasileira e nunca desisto!!!
